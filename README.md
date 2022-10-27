@@ -5,11 +5,11 @@
 
  《时尚网》官方网站            网址:http://www.trends.com.cn/
 
- 《Esquire时尚先生网》官方网站   网址:http://www.trends.com.cn/
+ 《时尚芭莎中文网》官方网站   网址:http://www.bazaar.com.cn/
 
  《新华云课堂》官方网站     网址:http://ke.sxxhdn.com/   
  
-				   小程序搜索：山西新华电脑学校云课堂
+ 小程序同步搜索：山西新华电脑学校云课堂
            
  好享学app  搜索即可下载
  
